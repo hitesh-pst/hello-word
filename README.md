@@ -5,3 +5,7 @@ swagat nahi karoge humara
 
 
 Kyun nahi jarur Vivek k theref se
+
+
+
+darpan ki teref se bhi
